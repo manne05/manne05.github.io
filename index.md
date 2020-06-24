@@ -14,3 +14,5 @@ Lieblingszitat von Funakoshi san:
 > heißt das Neue verstehen.
 > Dies ist eine Sache der Zeit.
 > Bewahre in allem klares Denken.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/4/44/Funakoshi_Gichin2.jpg"> 
