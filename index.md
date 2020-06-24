@@ -1,1 +1,1 @@
-Hier entsteht gerade eine Webseite zu meinem Lieblingscharakter!
+# Gichin Funakoshi - der Begründer der Shotokan Stilrichtung
